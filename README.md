@@ -1,2 +1,2 @@
 # Krnl-Backdoor
-Uhhhh idk Laki-laki Skidded Lol
+Uhhhh idk Lalol Skidded Lol
